@@ -1,4 +1,4 @@
-Currently a Roblox Game Developer, developing Ro-Box.
+Currently a Roblox Game Developer
 Github @ RKG-01.
 
 Languages -
