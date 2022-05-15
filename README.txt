@@ -1,3 +1,2 @@
-Currently a Roblox Game Developer
-Github @ RKG-01.
+Game Developer for Synthwave Interactive for the ROBLOX platform.
 
