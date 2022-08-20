@@ -1,2 +1,2 @@
-Game Developer for Synthwave Interactive for the ROBLOX platform.
+Also known as Rhys_Ree on other Platforms.
 
